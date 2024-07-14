@@ -26,10 +26,8 @@ I'm a passionate and dedicated student currently pursuing a BSc in Computer Scie
 
 Feel free to reach out to me through any of the following platforms:
 
-- 📱 **Phone**: [+8801921099356]
 - 🌐 **Facebook**: [@maheerjishan3](https://facebook.com/maheerjishan3)
 - 📸 **Instagram**: [@maheerjishan3](https://instagram.com/maheerjishan3)
-- 💬 **WhatsApp**: [+8801921099356]
 - 📲 **Telegram**: [@maheerjishan3]
 
 I'm always open to new opportunities and collaborations. Let's create something amazing together!
